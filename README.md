@@ -5,7 +5,7 @@
 <div align="center">
 <img src ="https://i.imgur.com/QiDjFLC.png" width="10%" height="10%"/>
 
-# Konas Client Archive 
+# Konas Client Archive (free/cracked)
 
 </div>
 
